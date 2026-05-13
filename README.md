@@ -1,0 +1,1 @@
+# WSS-AI-Review-QR-Platform
